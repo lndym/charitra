@@ -13,7 +13,7 @@ Following Yudhishthir’s command, Bhim and Arjun went to battle the Gandharvas.
 > Differences and disagreements are natural within families or
 > communities, but when the greater good of the family, society, or
 > nation is at stake, we must set aside our conflicts and work together as one
----
+----
 
 ### Akhandanand Swami's Nishchay
 Akhandanand Swami (senior) was an ardent staunch devotee with extreme patience. Once he was passing through a forest with his disciples. They saw four tigers coming towards them. The disciples hurried to climb up the trees. Akhandanand Swami said, "The death is destined according to one’s own previous actions. It is sure to come. Nobody can escape from it. You may die by falling from the tree or even by stumbling. One should not fear from death. "
@@ -41,8 +41,45 @@ Maharaj asked him, “Don’t you feel I am unappreciative?” Shuk Muni replied
 
 Hence, Shreeji Maharaj was very pleased with Shuk Muni. Shuk Muni belonged to the village of Dabhan so Maharaj very fondly called him `Dabhanio Sadhu'. Maharaj used to say, “This Dabhanio sadhu is very useful to me.” Whoever finds pleasure in the pleasure of Shriji Maharaj is a very useful person.
 
+> ### Moral ### 
 > A poet loves his poems as parents love their children, thus if anyone
 > neglects their poem, the poet feels offended. Although Shuk Muni was a
 > poet, he considered Maharaj’s wishes as his own. That’s why even
 > though Maharaj neglected the poems, Shuk Muni never felt insulted.
 > This is called true devotion.
+
+---
+### Fragrance of Sandalwood
+Vadtal Mandir was under construction. One day, Shreeji Maharaj visited the site. All the saints and devotees were working very hard. The work was strenuous and involved tasks like grinding lime and carrying bricks. Those engaged in this laborious work were covered in dirt and mud. Maharaj was highly pleased to see their efforts, and he said, “Come on, let us embrace.”
+
+The saints and devotees replied, “Maharaj, our bodies are dirty and muddy.”
+
+Maharaj responded merrily, “Who says your bodies are muddy? It is not mud; it is the fragrance of sandalwood!”
+
+Saying this, Shreeji Maharaj embraced each of them, one by one. Such was Shreeji Maharaj—he toiled alongside others, made them work, and honored those who labored.
+
+> ### Moral ### 
+> We should strive to do seva selflessly to please Shreeji Maharaj
+
+---
+### Fisherman and the fish
+Once, Ghanshyam Maharaj was playing with His friends Pragh, Madhav, and Veniram by the banks of a lake near Chhapaiya. They saw a fisherman in a boat, fishing. When they noticed the fish dying outside the water in baskets, Ghanshyam Maharaj became very upset. He swam up to the boat, gave life back to the fish, and returned them to the lake.
+
+The fisherman saw this and became very angry. He started shouting at Maharaj. In response, Ghanshyam Maharaj transformed into the image of Yamraj and showed the fisherman the consequences of his actions. He revealed to the fisherman the suffering he would endure in hell for his sin.
+
+Frightened, the fisherman pleaded with Maharaj, explaining that he was only doing this for his livelihood. Maharaj replied that there are many ways to earn a living that do not involve violence. The fisherman then promised not to kill any more fish. Ghanshyam Maharaj blessed him and redeemed him of his sins.
+
+> ### Moral ### 
+> We should always practice non-violence as it is the highest dharma
+
+---
+
+### 900,000 Blessings
+The Navlakh Mountains were home to 900,000 Siddhas, all engaged in intense tapasya (penance). Each Siddha had their own designated place for penance, surrounded by lush green grass and a landscape enriched with both hot and cold springs. Giving blessings to such a vast number of Siddhas would seem impossible for most, but Nilkanth Varni manifested 900,000 images of Himself to bless them all simultaneously.
+
+Nilkanth Varni then approached the leader of the Siddhas and inquired about the purpose of their tapascharya . The Siddha responded, “We perform tapasya to attain immortality.” Hearing this, Nilkanth Varni remarked, “I thought you were wise beings, yet you value your physical body more than your soul. The body is merely a temporary prison for the soul during its time on Earth. Instead, you should be performing tapasya to please Bhagwan and purify your soul, so it may be freed from this prison and attain eternal bliss in Akshardham.”
+
+Realizing their mistake, the Siddhas sought guidance from Nilkanth Varni to show them the true path.
+
+> ### Moral ### 
+> We should identify ourselves as the atma (soul) whenever we do bhakti
