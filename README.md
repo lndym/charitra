@@ -10,6 +10,7 @@
 * [Fragrance of Sandalwood](#fragrance-of-sandalwood)
 * [Fisherman and the fish](#fisherman-and-the-fish)
 * [900,000 Blessings](#900000-blessings)
+* [Initiation of Lalji Suthar](#initiation-of-lalji-suthar)
 
 ### Standing United
 When the Pandavas were exiled, they built a small hut in the forest by a river and started living there. One day, Duryodhan decided to visit the forest to mock the Pandavas and take pleasure in their suffering. He went there with a large army. At the time, a group of Gandharvas was bathing in the river, and Duryodhan picked a quarrel with them. A fight broke out, and although Duryodhan was brave, he was no match for the Gandharvas. They captured him and took him prisoner.
@@ -93,3 +94,26 @@ Realizing their mistake, the Siddhas sought guidance from Nilkanth Varni to show
 
 > ### Moral ### 
 > We should identify ourselves as the atma (soul) whenever we do bhakti
+>
+---
+
+
+### Initiation of Lalji Suthar
+Lalji Suthar was asked by Mayaram Bhatt to go to Loj to have Maharaj’s darshan. As a devotee of Ramanand Swami, Lalji did not see a reason to go to Loj when he could simply go to Bhuj and have Ramanand Swami’s darshan. So, he decided to go to Bhuj to seek blessings from Ramanand Swami. However, when he arrived there, Ramanand Swami turned His face away.
+
+Lalji Suthar asked Ramanand Swami what was wrong. Ramanand Swami then asked, “Did you not receive the message to go to Loj?” Lalji responded, “I did, Swami.” Ramanand Swami then asked, “Then why did you come here?” Lalji replied, “If you are here, why would I go to Loj?” Ramanand Swami explained that Lalji had made a mistake. He told Lalji that Maharaj Himself was present in Loj, so there was no point in coming to Bhuj. He added, “I am merely a follower here, following His will. He is the true Bhagwan, and He is our Ishtadev.”
+
+Lalji Suthar responded, “I didn’t make a mistake by coming here. I have learned about His greatness, and now, when I meet Him, I will experience the excitement and reverence that I would not have felt otherwise.”
+
+Lalji Suthar hurriedly went to Loj and asked Maharaj to stay at his place. Maharaj said, “I only stay where there is satsang, and where someone is doing satsang.” Lalji replied, “Yes, Maharaj, I will do satsang. I will sit across from You and do it.” Maharaj then set a condition: “As long as you sit across from Me and do satsang without falling asleep or yawning, I will stay. But as soon as you yawn, I will leave.” Lalji agreed.
+
+One day passed. Then two days. Then three days. Neither Lalji Suthar nor Maharaj grew tired or hungry. Time passed, and 18 days went by. Now, Maharaj began to worry, as he needed to visit other ghams to conduct satsang and guide people towards atyantik moksha. Maharaj called Mayadevi and asked her to make Lalji Suthar yawn. At that moment, Maharaj noticed Lalji Suthar yawning and said, “Savdhan Lalji! You yawned!” Lalji Suthar responded, “Maharaj, I didn’t yawn. You made me yawn!” Maharaj smiled and said, “I need to go to Bhuj, and I need someone who knows the way so that I don’t get lost.” Lalji replied, “I know the way. I can come with you.”
+
+They began their journey, and Maharaj started distributing the food He had brought to the hungry, the water to the thirsty, and the money to the poor. As they traveled, Maharaj and Lalji Suthar ran out of food, water, and money. That’s when they reached Padan gham.
+
+Maharaj turned to Lalji Suthar and said, “I’m hungry.” Lalji replied, “I knew you would get hungry, but you gave everything away. Now, what should I do?” Maharaj then asked, “Why don’t you go and collect bhiksha here?” Lalji replied, “Maharaj, I can’t ask for bhiksha in this gham because it’s my in-laws’ gham, and my wife and children are here too.” Maharaj insisted, “Then I definitely want you to get bhiksha here, and from your in-laws’ house.” Lalji said, “But Maharaj, everyone in this gham knows me.” Maharaj responded, “What if we send you in disguise?” Lalji agreed.
+
+Maharaj then shaved Lalji Suthar’s head, put a kanthi around his neck, applied tilak on his forehead, dressed him in bhagva (saffron clothes), and said, “From today, you will be known as Nishkulanand Swami.” Lalji Suthar’s dedication and service to Maharaj led him to give up his life for Maharaj and become a sadhu.
+
+> ### Moral ### 
+> Seeing the Lalji Sutra increase his Nishchay in Maharaj shows us how we should always strive to strengthen our own Nishchay
