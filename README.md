@@ -1,6 +1,12 @@
 
 # Charitras
-
+* [Standing United](#standing-united)
+* [Akhandanand Swami's Nishchay](#akhandanand-swamis-nishchay)
+* [Bhaguji - Hajuri Parshad](#bhaguji---hajuri-parshad)
+* [Shuk Muni's Faith](#shuk-munis-faith)
+* [Fragrance of Sandalwood](#fragrance-of-sandalwood)
+* [Fisherman and the fish](#fisherman-and-the-fish)
+* [900,000 Blessings](#900000-blessings)
 
 ### Standing United
 When the Pandavas were exiled, they built a small hut in the forest by a river and started living there. One day, Duryodhan decided to visit the forest to mock the Pandavas and take pleasure in their suffering. He went there with a large army. At the time, a group of Gandharvas was bathing in the river, and Duryodhan picked a quarrel with them. A fight broke out, and although Duryodhan was brave, he was no match for the Gandharvas. They captured him and took him prisoner.
