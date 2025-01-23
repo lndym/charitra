@@ -116,4 +116,4 @@ Maharaj turned to Lalji Suthar and said, “I’m hungry.” Lalji replied, “I
 Maharaj then shaved Lalji Suthar’s head, put a kanthi around his neck, applied tilak on his forehead, dressed him in bhagva (saffron clothes), and said, “From today, you will be known as Nishkulanand Swami.” Lalji Suthar’s dedication and service to Maharaj led him to give up his life for Maharaj and become a sadhu.
 
 > ### Moral ### 
-> Seeing the Lalji Sutra increase his Nishchay in Maharaj shows us how we should always strive to strengthen our own Nishchay
+> Seeing the Lalji Suthar increase his Nishchay in Maharaj shows us how we should always strive to strengthen our own Nishchay
