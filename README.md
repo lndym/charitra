@@ -13,6 +13,7 @@ Following Yudhishthir’s command, Bhim and Arjun went to battle the Gandharvas.
 > Differences and disagreements are natural within families or
 > communities, but when the greater good of the family, society, or
 > nation is at stake, we must set aside our conflicts and work together as one
+
 ---
 
 ### Akhandanand Swami's Nishchay
