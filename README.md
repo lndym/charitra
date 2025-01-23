@@ -15,6 +15,8 @@ Following Yudhishthir’s command, Bhim and Arjun went to battle the Gandharvas.
 > nation is at stake, we must set aside our conflicts and work together
 > as one.
 ---
+
+
 ### Akhandanand Swami's Nishchay
 Akhandanand Swami (senior) was an ardent staunch devotee with extreme patience. Once he was passing through a forest with his disciples. They saw four tigers coming towards them. The disciples hurried to climb up the trees. Akhandanand Swami said, "The death is destined according to one’s own previous actions. It is sure to come. Nobody can escape from it. You may die by falling from the tree or even by stumbling. One should not fear from death. "
 
@@ -22,7 +24,7 @@ The disciples climbed up the tree. The tigers came nearer. One of them ran forwa
 
 > #### Moral: ###
 > Bhagwan will always save you, given you never lose faith in Him
-> 
+
 ---
 ### Bhaguji - Hajuri Parshad
 Once, Khabad and Mataro (two mercenaries) arrived in Gadhada with two hundred men in order to fight for disputed land. Maharaj sent Bhaguji along with a band of forty other Parshads to the site. The two parties met and fought. Khabad threw a blow of the sword on Bhaguji’s right arm, which disabled it. But Bhaguji was resilient and fought gallantly with his left hand! He threw an immense blow and cut both Khabad and his horse, defeating them. But during the fight, Bhaguji was left with the scars of 18 cuts.
