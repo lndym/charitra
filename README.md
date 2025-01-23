@@ -14,3 +14,11 @@ Following Yudhishthir’s command, Bhim and Arjun went to battle the Gandharvas.
 > communities, but when the greater good of the family, society, or
 > nation is at stake, we must set aside our conflicts and work together
 > as one.
+---
+### Akhandanand Swami's Nishchay
+Akhandanand Swami (senior) was an ardent staunch devotee with extreme patience. Once he was passing through a forest with his disciples. They saw four tigers coming towards them. The disciples hurried to climb up the trees. Akhandanand Swami said, "The death is destined according to one’s own previous actions. It is sure to come. Nobody can escape from it. You may die by falling from the tree or even by stumbling. One should not fear from death. "
+
+The disciples climbed up the tree. The tigers came nearer. One of them ran forward and lifted his paw to kill him. Almighty Bhagwan gave them the knowledge of the greatness of Swami. The tiger was standing with his paw lifted up. Akhandanand Swami remained steadfast in remembering Shriji Maharaj. Suddenly, as if answering a call from above, the ferocious animal dropped its paw. All the tigers prostrated, circumambulated and went away.
+
+> #### Moral: ###
+> Bhagwan will always save you, given you never lose faith in Him
