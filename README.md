@@ -22,3 +22,13 @@ The disciples climbed up the tree. The tigers came nearer. One of them ran forwa
 
 > #### Moral: ###
 > Bhagwan will always save you, given you never lose faith in Him
+> 
+---
+### Bhaguji - Hajuri Parshad
+Once, Khabad and Mataro (two mercenaries) arrived in Gadhada with two hundred men in order to fight for disputed land. Maharaj sent Bhaguji along with a band of forty other Parshads to the site. The two parties met and fought. Khabad threw a blow of the sword on Bhaguji’s right arm, which disabled it. But Bhaguji was resilient and fought gallantly with his left hand! He threw an immense blow and cut both Khabad and his horse, defeating them. But during the fight, Bhaguji was left with the scars of 18 cuts.
+
+Bhaguji was left in a terrible state to recuperate. Maharaj himself saw to his recovery and served him dearly. Indeed he was at his deathbed but Maharaj saw to it and fully revitalised him.
+
+Bhaguji was felicitated by the King of Bhavnagar and offered a very lucrative post in the state’s army, but he said: “I have only one master and that too for my whole life." He was also felicitated by Maharaja Sayajirao of Baroda. When Shree Hari left this world, Bhaguji served Ayodhaprasadji Maharaj. Then, he left for Muli Mandir where he served until his last breath.
+> #### Moral: ###
+> Learn to serve Shreeji Maharaj selflessly and strive to become as dedicated as Bhaguji
