@@ -1,7 +1,8 @@
 
 # Charitras
 
-## Table of Contents
+<span style="color:black"> Table of Contents</span>
+
 * [Standing United](#standing-united)
 * [Akhandanand Swami's Nishchay](#akhandanand-swamis-nishchay)
 * [Bhaguji - Hajuri Parshad](#bhaguji---hajuri-parshad)
