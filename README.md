@@ -12,10 +12,8 @@ Following Yudhishthir’s command, Bhim and Arjun went to battle the Gandharvas.
 > #### Moral: ####
 > Differences and disagreements are natural within families or
 > communities, but when the greater good of the family, society, or
-> nation is at stake, we must set aside our conflicts and work together
-> as one.
+> nation is at stake, we must set aside our conflicts and work together as one
 ---
-
 
 ### Akhandanand Swami's Nishchay
 Akhandanand Swami (senior) was an ardent staunch devotee with extreme patience. Once he was passing through a forest with his disciples. They saw four tigers coming towards them. The disciples hurried to climb up the trees. Akhandanand Swami said, "The death is destined according to one’s own previous actions. It is sure to come. Nobody can escape from it. You may die by falling from the tree or even by stumbling. One should not fear from death. "
@@ -23,7 +21,7 @@ Akhandanand Swami (senior) was an ardent staunch devotee with extreme patience. 
 The disciples climbed up the tree. The tigers came nearer. One of them ran forward and lifted his paw to kill him. Almighty Bhagwan gave them the knowledge of the greatness of Swami. The tiger was standing with his paw lifted up. Akhandanand Swami remained steadfast in remembering Shriji Maharaj. Suddenly, as if answering a call from above, the ferocious animal dropped its paw. All the tigers prostrated, circumambulated and went away.
 
 > #### Moral: ###
-> Bhagwan will always save you, given you never lose faith in Him
+> Bhagwan will always save you, given you never lose faith in Him  
 
 ---
 ### Bhaguji - Hajuri Parshad
@@ -34,3 +32,17 @@ Bhaguji was left in a terrible state to recuperate. Maharaj himself saw to his r
 Bhaguji was felicitated by the King of Bhavnagar and offered a very lucrative post in the state’s army, but he said: “I have only one master and that too for my whole life." He was also felicitated by Maharaja Sayajirao of Baroda. When Shree Hari left this world, Bhaguji served Ayodhaprasadji Maharaj. Then, he left for Muli Mandir where he served until his last breath.
 > #### Moral: ###
 > Learn to serve Shreeji Maharaj selflessly and strive to become as dedicated as Bhaguji
+
+---
+### Shuk Muni's Faith
+Shukanand Swami composed poems in Sanskrit. Once, he decided to please Maharaj by composing some poems. He wrote the poems and showed them to Maharaj. As soon as Maharaj took those poems in his hands, he threw them in water. Other poets would feel insulted by Maharaja’s act, but Shuk Muni was not offended. He then wrote other poems. Maharaj threw them into water without even reading them. This continued for some time.
+
+Maharaj asked him, “Don’t you feel I am unappreciative?” Shuk Muni replied, “Not the least Maharaj. I was writing poems only to please you. You took pleasure in throwing all my poems into water. Your pleasure was my pleasure. My pleasure consisted of your pleasure, hence why should I feel insulted?”
+
+Hence, Shreeji Maharaj was very pleased with Shuk Muni. Shuk Muni belonged to the village of Dabhan so Maharaj very fondly called him `Dabhanio Sadhu'. Maharaj used to say, “This Dabhanio sadhu is very useful to me.” Whoever finds pleasure in the pleasure of Shriji Maharaj is a very useful person.
+
+> A poet loves his poems as parents love their children, thus if anyone
+> neglects their poem, the poet feels offended. Although Shuk Muni was a
+> poet, he considered Maharaj’s wishes as his own. That’s why even
+> though Maharaj neglected the poems, Shuk Muni never felt insulted.
+> This is called true devotion.
