@@ -54,7 +54,7 @@ Maharaj asked him, “Don’t you feel I am unappreciative?” Shuk Muni replied
 
 Hence, Shreeji Maharaj was very pleased with Shuk Muni. Shuk Muni belonged to the village of Dabhan so Maharaj very fondly called him `Dabhanio Sadhu'. Maharaj used to say, “This Dabhanio sadhu is very useful to me.” Whoever finds pleasure in the pleasure of Shriji Maharaj is a very useful person.
 
-> ### Moral ### 
+> #### Moral #### 
 > A poet loves his poems as parents love their children, thus if anyone
 > neglects their poem, the poet feels offended. Although Shuk Muni was a
 > poet, he considered Maharaj’s wishes as his own. That’s why even
@@ -71,7 +71,7 @@ Maharaj responded merrily, “Who says your bodies are muddy? It is not mud; it 
 
 Saying this, Shreeji Maharaj embraced each of them, one by one. Such was Shreeji Maharaj—he toiled alongside others, made them work, and honored those who labored.
 
-> ### Moral ### 
+> #### Moral #### 
 > We should strive to do seva selflessly to please Shreeji Maharaj
 
 ---
@@ -82,7 +82,7 @@ The fisherman saw this and became very angry. He started shouting at Maharaj. In
 
 Frightened, the fisherman pleaded with Maharaj, explaining that he was only doing this for his livelihood. Maharaj replied that there are many ways to earn a living that do not involve violence. The fisherman then promised not to kill any more fish. Ghanshyam Maharaj blessed him and redeemed him of his sins.
 
-> ### Moral ### 
+> #### Moral #### 
 > We should always practice non-violence as it is the highest dharma
 
 ---
@@ -94,7 +94,7 @@ Nilkanth Varni then approached the leader of the Siddhas and inquired about the 
 
 Realizing their mistake, the Siddhas sought guidance from Nilkanth Varni to show them the true path.
 
-> ### Moral ### 
+> #### Moral #### 
 > We should identify ourselves as the atma (soul) whenever we do bhakti
 
 
@@ -118,7 +118,7 @@ Maharaj turned to Lalji Suthar and said, “I’m hungry.” Lalji replied, “I
 
 Maharaj then shaved Lalji Suthar’s head, put a kanthi around his neck, applied tilak on his forehead, dressed him in bhagva (saffron clothes), and said, “From today, you will be known as Nishkulanand Swami.” Lalji Suthar’s dedication and service to Maharaj led him to give up his life for Maharaj and become a sadhu.
 
-> ### Moral ### 
+> #### Moral #### 
 > Seeing the Lalji Suthar increase his Nishchay in Maharaj shows us how we should always strive to strengthen our own Nishchay
 
 ---
@@ -132,7 +132,7 @@ While Swami was speaking to Varniraj in the assembly that night, a divine light 
 
 Nilkanth Varni would gather flowers, sandalwood, fragrant incense, Tulsi leaves, and other items for Swami’s seva, serving him tirelessly and with great devotion. Pleased with Nilkanth Varni’s sincerity and dedication as a disciple, Ramanand Swami decided to grant him with Maha Diksha.
 
-> ### Moral ### 
+> #### Moral #### 
 > We should learn from the das bhav of Nilkanth Varni by doing seva of Bhagwan and our gurus. This is the key to attaining Shreeji Maharaj’s rajipo.
 
 ---
@@ -148,7 +148,7 @@ But Govardhanbhai would simply reply, “Swaminarayan is the only real name and 
 
 Word of this unusual practice soon reached Shreeji Maharaj. Knowing Govardhanbhai’s unwavering faith, Maharaj reassured everyone, “Do not worry. Govardhanbhai has entrusted everything to Swaminarayan. And Swaminarayan is omnipresent—He will take care of everything.”
 
-> ### Moral ### 
+> #### Moral #### 
 > Such was the faith of Govardhanbhai. And true to Maharaj’s words, Bhagwan always takes care of those who surrender everything to Him.
 
 ---
