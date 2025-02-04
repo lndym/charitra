@@ -11,7 +11,9 @@
 * [Fisherman and the fish](#fisherman-and-the-fish)
 * [900,000 Blessings](#900000-blessings)
 * [Initiation of Lalji Suthar](#initiation-of-lalji-suthar)
-
+* [Guru Seva of Nilkanth Varni](#guru-seva-of-nilkanth-varni)
+* [Govardhanbhai's Samarpan](#govardhanbhais-samarpan)
+  
 ### Standing United
 When the Pandavas were exiled, they built a small hut in the forest by a river and started living there. One day, Duryodhan decided to visit the forest to mock the Pandavas and take pleasure in their suffering. He went there with a large army. At the time, a group of Gandharvas was bathing in the river, and Duryodhan picked a quarrel with them. A fight broke out, and although Duryodhan was brave, he was no match for the Gandharvas. They captured him and took him prisoner.
 
@@ -94,7 +96,8 @@ Realizing their mistake, the Siddhas sought guidance from Nilkanth Varni to show
 
 > ### Moral ### 
 > We should identify ourselves as the atma (soul) whenever we do bhakti
->
+
+
 ---
 
 
@@ -117,3 +120,36 @@ Maharaj then shaved Lalji Suthar’s head, put a kanthi around his neck, applied
 
 > ### Moral ### 
 > Seeing the Lalji Suthar increase his Nishchay in Maharaj shows us how we should always strive to strengthen our own Nishchay
+
+---
+
+
+### Guru Seva of Nilkanth Varni
+
+On the day of Ekadashi, Ramanand Swami asked Nilkanth Varni about his birthplace, caste, parents, knowledge of the Vedas, Ishtadevta, and the reason for his renunciation. Varniraj gave satisfactory replies to all the questions. Upon learning about Varniraj’s parents, Swami said, "O Brahmachari! You are one of ours. We know your parents; they met us in Prayag, and we gave them Gurudiksha. You surpass your father in many qualities and virtues."
+
+While Swami was speaking to Varniraj in the assembly that night, a divine light emanated from Swami’s body and dispelled the darkness, filling the space with a radiant glow akin to daylight. Witnessing this miracle, all the sadhus seated there, including Varniraj, were astonished. Varniraj soon realized the divinity that resided in the body of Ramanand Swami. Similarly, Swami recognized that Nilkanth Varni was none other than Narayan himself. They accepted Varniraj into their service.
+
+Nilkanth Varni would gather flowers, sandalwood, fragrant incense, Tulsi leaves, and other items for Swami’s seva, serving him tirelessly and with great devotion. Pleased with Nilkanth Varni’s sincerity and dedication as a disciple, Ramanand Swami decided to grant him with Maha Diksha.
+
+> ### Moral ### 
+> We should learn from the das bhav of Nilkanth Varni by doing seva of Bhagwan and our gurus. This is the key to attaining Shreeji Maharaj’s rajipo.
+
+---
+
+
+### Govardhanbhai's Samarpan
+
+In the town of Mangrol near Junagadh, there lived a Baniya named Govardhanbhai. He was a devoted follower of Shreeji Maharaj and thought of Him day and night.
+
+At his shop, whenever a customer came to buy or sell something, Govardhanbhai saw Maharaj in them. If someone delivered goods, he would record the transaction in his account book as “through Maharaj.” People often advised him, “Govardhanbhai, this is not how business works. You must write down the actual names and places.”
+
+But Govardhanbhai would simply reply, “Swaminarayan is the only real name and place.”
+
+Word of this unusual practice soon reached Shreeji Maharaj. Knowing Govardhanbhai’s unwavering faith, Maharaj reassured everyone, “Do not worry. Govardhanbhai has entrusted everything to Swaminarayan. And Swaminarayan is omnipresent—He will take care of everything.”
+
+> ### Moral ### 
+> Such was the faith of Govardhanbhai. And true to Maharaj’s words, Bhagwan always takes care of those who surrender everything to Him.
+
+---
+
